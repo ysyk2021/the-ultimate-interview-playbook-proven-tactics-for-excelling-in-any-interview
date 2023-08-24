@@ -1,5 +1,3 @@
-Chapter 15: Expert Advice: Insights from Successful Job Seekers and Hiring Managers
-===================================================================================
 
 In this chapter, we will provide insights and advice from successful job seekers and hiring managers to help you excel in any interview.
 

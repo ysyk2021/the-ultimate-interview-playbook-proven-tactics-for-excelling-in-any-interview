@@ -1,5 +1,3 @@
-What to Do If You Don't Get the Job
-================================================================================
 
 Not every interview will result in a job offer, but that doesn't mean your efforts were in vain. In this chapter, we'll explore strategies for following up after an interview, even if you didn't get the job.
 

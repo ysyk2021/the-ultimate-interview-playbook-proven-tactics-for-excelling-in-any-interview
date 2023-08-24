@@ -1,5 +1,3 @@
-Strategies for Staying Top-of-Mind with Hiring Managers
-====================================================================================================
 
 Following up after an interview is a critical step in the job search process. In addition to thanking the interviewer and requesting feedback, it's important to stay top-of-mind with hiring managers. In this chapter, we'll explore strategies for doing just that.
 

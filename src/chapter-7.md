@@ -1,5 +1,3 @@
-Chapter 7: Demonstrating Cultural Fit
-=====================================
 
 Demonstrating cultural fit is a crucial part of any job interview. Employers want to hire candidates who not only have the right skills and experience, but who also share their values and can thrive within their company culture. In this chapter, we'll explore techniques for demonstrating cultural fit and identifying potential cultural clashes.
 

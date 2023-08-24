@@ -1,5 +1,3 @@
-Interviews with Successful Job Seekers and Hiring Managers
-===============================================================================================================================================
 
 Learning from the experiences of successful job seekers and hiring managers can provide valuable insights into what it takes to excel in an interview. In this chapter, we'll hear from a variety of experts in the field who share their tips, tricks, and advice for interview success.
 

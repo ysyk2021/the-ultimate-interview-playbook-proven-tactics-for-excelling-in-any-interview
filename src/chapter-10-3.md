@@ -1,5 +1,3 @@
-Strategies for Negotiating Benefits and Perks
-==========================================================================================
 
 Negotiating benefits and perks can be just as important as negotiating salary during the job offer process. In this chapter, we'll explore some effective strategies for negotiating benefits and perks to ensure that you're getting the most out of your compensation package.
 

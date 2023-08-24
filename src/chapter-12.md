@@ -1,5 +1,3 @@
-Chapter 12: Advanced Interviewing Techniques
-============================================
 
 Once you have a good grasp on the basics of interviewing, it's important to take your skills to the next level. In this chapter, we'll explore some advanced interviewing techniques to help you stand out and excel in any interview situation.
 

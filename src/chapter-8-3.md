@@ -1,5 +1,3 @@
-Second-round and final interviews
-========================================================================================
 
 Second-round and final interviews are critical stages in the interview process. In this chapter, we'll explore strategies for navigating these special interview circumstances and impressing your potential employer.
 

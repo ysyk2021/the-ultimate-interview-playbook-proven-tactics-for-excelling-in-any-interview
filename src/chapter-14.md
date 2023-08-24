@@ -1,5 +1,3 @@
-Chapter 14: Creating Your Own Interview Preparation Plan
-========================================================
 
 In this chapter, we will guide you through the process of creating your own personalized interview preparation plan. We will cover how to identify your strengths and weaknesses, develop a plan that works for you, and cultivate a winning mindset.
 

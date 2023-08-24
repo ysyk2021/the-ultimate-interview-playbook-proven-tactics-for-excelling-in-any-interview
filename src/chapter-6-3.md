@@ -1,5 +1,3 @@
-Communicating Effectively During the Interview
-===============================================================================================
 
 During job interviews, you'll likely be asked a range of common interview questions designed to assess your skills and fit for the company. The way you communicate your responses can be just as important as the content of your answers. In this chapter, we'll explore tips for effectively answering common interview questions and communicating your value to the employer.
 

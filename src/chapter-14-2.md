@@ -1,5 +1,3 @@
-Developing a Personalized Interview Preparation Plan
-==============================================================================================================
 
 Every candidate has unique strengths and areas for improvement when it comes to interview preparation. In this chapter, we'll explore strategies for creating a personalized interview preparation plan to maximize your chances of success.
 

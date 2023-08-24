@@ -1,5 +1,3 @@
-The Importance of Mastering Interview Skills in Career Success
-=======================================================================================
 
 The interview process can be a daunting experience for many individuals. However, mastering interview skills is critical to career success. In this chapter, we'll discuss the importance of mastering interview skills and how it can impact your career.
 

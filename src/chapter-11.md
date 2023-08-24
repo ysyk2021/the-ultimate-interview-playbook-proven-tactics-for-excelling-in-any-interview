@@ -1,5 +1,3 @@
-Chapter 11: Mastering Nonverbal Communication
-=============================================
 
 Nonverbal communication can be just as important as verbal communication in an interview. It can convey confidence, engagement, and professionalism -- or the opposite. In this chapter, we'll explore some strategies for mastering nonverbal communication.
 

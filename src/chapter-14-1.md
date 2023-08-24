@@ -1,5 +1,3 @@
-Identifying Your Strengths and Weaknesses
-===================================================================================================
 
 Interview preparation is key to excelling in any job interview. In this chapter, we'll explore how to create your own interview preparation plan by identifying your strengths and weaknesses.
 

@@ -1,5 +1,3 @@
-Gathering Information About the Company and Its Culture
-========================================================================================================
 
 In order to excel in any interview, it's crucial to research the company and position beforehand. In this chapter, we'll explore how to gather information about the company and its culture to better prepare for the interview.
 

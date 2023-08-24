@@ -1,5 +1,3 @@
-Strategies for Building Confidence and a Winning Mindset
-================================================================================================
 
 Preparing for an interview can be nerve-wracking, but developing strategies to build confidence and a winning mindset can help you excel in any interview setting. In this chapter, we'll explore techniques for preparing for an interview and building the confidence you need to succeed.
 

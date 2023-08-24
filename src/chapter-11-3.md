@@ -1,5 +1,3 @@
-Creating a Positive First Impression
-===================================================================================
 
 First impressions are critical in the job interview process, and nonverbal communication plays a key role in creating a positive one. In this chapter, we'll explore how to master nonverbal communication and make a strong first impression.
 

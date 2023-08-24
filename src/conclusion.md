@@ -1,4 +1,3 @@
-# Conclusion
 
 Congratulations! You've made it to the end of The Ultimate Interview Playbook. By now, you should have a solid understanding of the interview process and the tactics you can use to excel in any interview situation.
 

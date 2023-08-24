@@ -1,5 +1,3 @@
-Emerging Trends in Interviewing
-========================================================================================
 
 The world of job interviewing is continuously evolving, with new trends and technologies emerging all the time. In this chapter, we'll explore some of the latest trends in interviewing that you should be aware of.
 

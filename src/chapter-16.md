@@ -1,5 +1,3 @@
-Chapter 16: New Trends and Technologies in Interviewing
-=======================================================
 
 The job interview landscape is constantly evolving, with new trends and technologies emerging that can impact the way interviews are conducted. In this chapter, we'll explore some of the latest trends and technologies in interviewing, and how you can prepare to succeed in this changing landscape.
 

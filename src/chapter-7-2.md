@@ -1,5 +1,3 @@
-Techniques for Demonstrating Cultural Fit
-================================================================================
 
 Demonstrating cultural fit during an interview can be a key factor in landing the job. In this chapter, we'll explore techniques for demonstrating cultural fit and ensuring that your values align with those of the company you're interviewing with.
 

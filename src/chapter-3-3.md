@@ -1,5 +1,3 @@
-Identifying Potential Interview Questions
-==========================================================================================
 
 Conducting thorough research on the company and position beforehand is crucial to succeeding in any interview. In this chapter, we'll explore techniques for researching the company and position, and identifying potential interview questions.
 

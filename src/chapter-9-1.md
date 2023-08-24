@@ -1,5 +1,3 @@
-Sending Thank-You Notes and Follow-Up Emails
-=========================================================================================
 
 Following up after a job interview is an important step in the hiring process. It shows your interest in the position, gratitude for the interviewer's time, and helps you stand out from other candidates. In this chapter, we'll explore tips for sending thank-you notes and follow-up emails after an interview.
 

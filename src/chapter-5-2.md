@@ -1,5 +1,3 @@
-Techniques for Managing Interview Anxiety
-=================================================================================
 
 Interview anxiety is a common experience for many individuals. However, there are techniques that can be used to manage interview anxiety and increase the likelihood of success. In this chapter, we'll explore techniques for managing interview anxiety and preparing for the interview.
 

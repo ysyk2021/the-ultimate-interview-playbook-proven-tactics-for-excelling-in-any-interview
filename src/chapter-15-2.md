@@ -1,5 +1,3 @@
-Insider Tips and Strategies for Interviewing Success
-=========================================================================================================================================
 
 Interviewing can be a challenging process, but there's no shortage of insight and advice available from successful job seekers and hiring managers. In this chapter, we'll explore some of the best tips and strategies for interviewing success that we've gleaned from these experts.
 

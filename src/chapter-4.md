@@ -1,5 +1,3 @@
-Chapter 4: Crafting Your Personal Brand
-=======================================
 
 Crafting a strong personal brand is essential to succeeding in any job interview. In this chapter, we'll explore how to develop your own personal brand, identify your unique value proposition, and create a compelling elevator pitch.
 

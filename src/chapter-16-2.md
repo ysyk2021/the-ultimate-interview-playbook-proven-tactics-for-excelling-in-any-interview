@@ -1,5 +1,3 @@
-How technology is changing the interview process
-=========================================================================================================
 
 Technology is changing the landscape of job interviewing. From video interviews to artificial intelligence screening, employers are using new technologies to streamline the interview process and improve candidate assessment. In this chapter, we'll explore some of the latest trends and technologies in interviewing.
 

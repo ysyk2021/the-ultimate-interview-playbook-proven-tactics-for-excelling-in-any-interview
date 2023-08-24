@@ -1,5 +1,3 @@
-Understanding the Company Culture and Values
-===================================================================================
 
 In addition to assessing your skills and experience, many companies prioritize finding candidates that align with their company culture and values. In this chapter, we'll explore how to research and understand a company's culture and values and how to demonstrate your fit during the interview process.
 

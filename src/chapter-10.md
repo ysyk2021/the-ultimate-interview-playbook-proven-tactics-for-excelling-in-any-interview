@@ -1,5 +1,3 @@
-Chapter 10: Negotiating Salary and Benefits
-===========================================
 
 Negotiating salary and benefits can be a daunting task, but it's an important part of the job search process. In this chapter, we'll explore some tactics and strategies for successfully negotiating your compensation package.
 

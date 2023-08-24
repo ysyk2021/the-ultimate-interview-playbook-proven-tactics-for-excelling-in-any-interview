@@ -1,5 +1,3 @@
-Techniques for Answering Common Interview Questions
-====================================================================================================
 
 Preparing for common interview questions is critical to excelling in any interview setting. In this chapter, we'll explore techniques for answering common interview questions and providing compelling responses that showcase your skills and experience.
 

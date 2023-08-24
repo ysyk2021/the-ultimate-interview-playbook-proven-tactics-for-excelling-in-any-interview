@@ -1,5 +1,3 @@
-Group Interviews
-=======================================================================
 
 Group interviews are becoming increasingly popular as a way for employers to assess a candidate's ability to work in a team environment. They can be intimidating, but they also offer opportunities to showcase your skills and stand out from other candidates. In this chapter, we'll explore some tactics for excelling in group interviews.
 

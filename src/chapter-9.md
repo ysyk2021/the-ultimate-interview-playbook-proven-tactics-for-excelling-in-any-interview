@@ -1,5 +1,3 @@
-Chapter 9: Following Up After the Interview
-===========================================
 
 After an interview, it's important to follow up with the hiring manager to demonstrate your interest in the position and keep yourself top-of-mind. In this chapter, we'll explore strategies for sending thank-you notes and follow-up emails, staying top-of-mind with hiring managers, and what to do if you don't get the job.
 
