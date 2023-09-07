@@ -10,3 +10,7 @@ Throughout the book, we'll share real-world examples of successful interviews, a
 Whether you're a recent graduate just starting out in your career, or a seasoned professional looking to make a job change, the Ultimate Interview Playbook has something for everyone. So let's get started on the path to interview success.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
