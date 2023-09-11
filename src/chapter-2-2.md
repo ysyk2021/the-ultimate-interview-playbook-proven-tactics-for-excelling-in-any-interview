@@ -1,5 +1,4 @@
-Chapter 5: What to Expect During the Interview Process
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 The interview process can be a multi-step journey that varies from company to company. In this chapter, we explore what you can expect during the interview process, providing insights into the typical stages and activities that you may encounter along the way.
 

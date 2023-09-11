@@ -1,5 +1,4 @@
-Chapter 3: Identifying Your Strengths and Weaknesses
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Identifying your strengths and weaknesses is a crucial step in preparing for any interview. Understanding and articulating these aspects effectively can demonstrate self-awareness, authenticity, and a willingness to grow. In this chapter, we explore proven tactics for identifying and presenting your strengths and weaknesses during an interview.
 

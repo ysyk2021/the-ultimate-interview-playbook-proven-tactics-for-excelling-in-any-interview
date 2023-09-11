@@ -1,5 +1,4 @@
-Chapter 9: Strategies for Addressing Potential Red Flags or Concerns
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 During the interview process, it's not uncommon for potential red flags or concerns to arise that may impact your candidacy. The key is to address these issues proactively and effectively to alleviate any doubts in the minds of the interviewers. In this chapter, we will explore strategies for addressing potential red flags and concerns to increase your chances of excelling in any interview.
 

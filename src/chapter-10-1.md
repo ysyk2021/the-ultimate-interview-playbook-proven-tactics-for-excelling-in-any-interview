@@ -1,5 +1,4 @@
-Chapter 8: Understanding the Salary Negotiation Process
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Salary negotiation is a crucial aspect of the interview process, allowing you to secure a competitive compensation package that reflects your skills and value. In this chapter, we delve into understanding the salary negotiation process, providing insights and tactics to help you navigate this critical stage with confidence.
 

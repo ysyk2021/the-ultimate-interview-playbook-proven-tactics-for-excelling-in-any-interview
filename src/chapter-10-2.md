@@ -1,5 +1,4 @@
-Chapter 6: Tips for Researching and Determining Fair Compensation
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Researching and determining fair compensation is a critical step in the interview process. It ensures that you have a clear understanding of your market value and empowers you to negotiate a competitive salary. In this chapter, we provide useful tips for conducting compensation research effectively.
 

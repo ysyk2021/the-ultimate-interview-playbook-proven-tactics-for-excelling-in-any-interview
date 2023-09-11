@@ -1,5 +1,4 @@
-Chapter 10: Tips for Turning Negative Aspects into Positives
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In every interview, there is a possibility that negative aspects or challenging situations from your past may arise. These could include previous failures, setbacks, or weaknesses. However, with the right approach, you can turn these negatives into positives and showcase your growth, resilience, and ability to overcome obstacles. In this chapter, we will explore effective tips for transforming negative aspects into positive narratives during interviews.
 

@@ -1,5 +1,4 @@
-Chapter 10: How Technology Is Changing the Interview Process
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's digital era, technology has significantly transformed the interview process, introducing new methods and tools that enhance efficiency, accessibility, and effectiveness. This chapter explores the ways in which technology is changing the interview landscape and provides insights into leveraging these advancements to excel in interviews.
 

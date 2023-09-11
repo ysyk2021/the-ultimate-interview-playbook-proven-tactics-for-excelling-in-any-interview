@@ -1,5 +1,4 @@
-Chapter 6: Different Types of Job Interviews
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Job interviews come in various formats, each designed to assess candidates' qualifications, skills, and suitability for specific roles. In this chapter, we explore different types of job interviews that you may encounter during your job search, providing insights into their purpose and offering tips to excel in each format.
 

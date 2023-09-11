@@ -1,5 +1,4 @@
-Chapter 10: Strategies for Negotiating Benefits and Perks
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Negotiating benefits and perks can be a crucial part of the interview process, allowing you to secure a compensation package that aligns with your needs and expectations. In this chapter, we explore effective strategies for negotiating benefits and perks, empowering you to maximize your overall compensation.
 

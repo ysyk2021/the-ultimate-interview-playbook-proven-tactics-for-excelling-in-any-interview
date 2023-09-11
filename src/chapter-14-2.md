@@ -1,5 +1,4 @@
-Chapter 7: Developing a Personalized Interview Preparation Plan
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 To excel in any interview, it is essential to develop a personalized preparation plan tailored to your unique strengths, weaknesses, and the specific requirements of the role. In this chapter, we will guide you through the process of creating a comprehensive and effective interview preparation plan.
 

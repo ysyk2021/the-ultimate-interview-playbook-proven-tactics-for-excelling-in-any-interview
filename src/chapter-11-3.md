@@ -1,5 +1,4 @@
-Chapter 4: Creating a Positive First Impression
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Making a positive first impression is crucial in any interview. It sets the tone for the rest of the conversation and can significantly impact how the interviewer perceives your candidacy. In this chapter, we will explore proven tactics for creating a positive first impression that will help you excel in any interview.
 

@@ -1,5 +1,4 @@
-Chapter 5: Demonstrating Leadership Skills and Potential
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Demonstrating leadership skills and potential is essential during an interview. Employers value candidates who exhibit the ability to lead, inspire others, and drive results. In this chapter, we explore effective strategies for showcasing your leadership abilities to excel in any interview.
 

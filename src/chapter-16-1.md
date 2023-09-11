@@ -1,5 +1,4 @@
-Chapter 12: Emerging Trends in Interviewing
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 The landscape of interviewing is constantly evolving, influenced by emerging trends and advancements in technology. Staying abreast of these trends and understanding how they impact the interview process can give you a competitive edge. In this chapter, we explore the latest emerging trends in interviewing and provide strategies to navigate them successfully.
 

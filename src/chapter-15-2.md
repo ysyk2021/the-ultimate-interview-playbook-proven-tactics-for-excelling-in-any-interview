@@ -1,5 +1,4 @@
-Chapter 10: Insider Tips and Strategies for Interviewing Success
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this final chapter of "The Ultimate Interview Playbook: Proven Tactics for Excelling in Any Interview," we will explore insider tips and strategies that will help you navigate the interview process successfully and increase your chances of securing the job.
 

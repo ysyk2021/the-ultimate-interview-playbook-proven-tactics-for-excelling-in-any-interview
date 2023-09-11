@@ -1,5 +1,4 @@
-Chapter 6: Controlling Your Own Nonverbal Cues
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Your nonverbal cues play a significant role in how you are perceived during an interview. They can convey confidence, engagement, and professionalism or inadvertently send signals of nervousness or disinterest. In this chapter, we will explore tactics for controlling your own nonverbal cues to excel in any interview.
 

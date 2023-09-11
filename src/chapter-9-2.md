@@ -1,5 +1,4 @@
-Chapter: Strategies for Staying Top-of-Mind with Hiring Managers
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for staying top-of-mind with hiring managers throughout the interview process. Maintaining a strong presence and positive impression can significantly increase your chances of securing the job. By employing tactics such as proactive communication, thoughtful follow-ups, networking, and showcasing your expertise, you can stay at the forefront of hiring managers' minds and stand out from other candidates. This chapter delves into proven tactics that will help you excel in staying top-of-mind with hiring managers.
 
